@@ -15,3 +15,7 @@
 > If you don't build your own dreams, someone else will hire you to build theirs.
 
 > Judge me when you are perfect.
+
+> It's OK if all you did today was SURVIVE.
+
+> I am because we are!
