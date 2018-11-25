@@ -19,3 +19,5 @@
 > It's OK if all you did today was SURVIVE.
 
 > I am because we are!
+
+> It always seems impossible until it's done.
