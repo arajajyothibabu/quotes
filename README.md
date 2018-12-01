@@ -15,3 +15,9 @@
 > I am because we are!
 
 > It always seems impossible until it's done.
+
+> Forget Life, Find Love.  
+> Forget Love, Find Laugh.   
+> Forget Laugh, Find Happiness.  
+> Forget Happiness, Find Purpose.  
+> And the day you'll find PURPOSE, You'll find the LIFE.
