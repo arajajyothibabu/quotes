@@ -21,3 +21,5 @@
 > Forget Laugh, Find Happiness.  
 > Forget Happiness, Find Purpose.  
 > And the day you'll find PURPOSE, You'll find the LIFE.
+
+> To solve problems at scale, paradoxically, you have to know the smallest details
