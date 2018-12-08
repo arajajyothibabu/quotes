@@ -22,4 +22,6 @@
 > Forget Happiness, Find Purpose.  
 > And the day you'll find PURPOSE, You'll find the LIFE.
 
-> To solve problems at scale, paradoxically, you have to know the smallest details
+> To solve problems at scale, paradoxically, you have to know the smallest details.
+
+> Never try to get which is not yours, never dare to lose which is yours.
