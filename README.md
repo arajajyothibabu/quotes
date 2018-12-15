@@ -25,3 +25,7 @@
 > To solve problems at scale, paradoxically, you have to know the smallest details.
 
 > Never try to get which is not yours, never dare to lose which is yours.
+
+> As soon as we make peace with ourself, we start liking everyone.  
+> As soon as we stop bothering about future, we start liking every oppurtunity.  
+> As soon as we stop thinking too much, we start believing we can do anything.  
