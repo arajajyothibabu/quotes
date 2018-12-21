@@ -29,3 +29,5 @@
 > As soon as we make peace with ourself, we start liking everyone.  
 > As soon as we stop bothering about future, we start liking every oppurtunity.  
 > As soon as we stop thinking too much, we start believing we can do anything.  
+
+> The art of knowing is knowing what to ignore.
