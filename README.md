@@ -31,3 +31,5 @@
 > As soon as we stop thinking too much, we start believing we can do anything.  
 
 > The art of knowing is knowing what to ignore.
+
+> If you need inspirtion, don't do it.
