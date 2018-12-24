@@ -32,4 +32,4 @@
 
 > The art of knowing is knowing what to ignore.
 
-> If you need inspirtion, don't do it.
+> If you need inspiration, don't do it.
