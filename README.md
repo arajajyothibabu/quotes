@@ -33,3 +33,5 @@
 > The art of knowing is knowing what to ignore.
 
 > If you need inspiration, don't do it.
+
+> If you don't have any shadows, you're not standing in the light.
